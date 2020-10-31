@@ -1,1 +1,1 @@
-!A picture of a woman with her hand stretched out] (https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.memedroid.com%2Fmemes%2Fdetail%2F2004024&psig=AOvVaw1tp9ncTdmkhzVR7szzL5MS&ust=1604230783013000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCMjfwZHg3uwCFQAAAAAdAAAAABAD)
+![A picture of a woman with her hand stretched out](https://www.memedroid.com/memes/detail/2004024)
