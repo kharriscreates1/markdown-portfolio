@@ -1,1 +1,1 @@
-![A picture of a woman with her hand stretched out](https://www.memedroid.com/memes/detail/2004024)
+![A pink flower](https://images-na.ssl-images-amazon.com/images/I/41-SYJSrDgL.jpg)
